@@ -1,0 +1,1 @@
+aplikasi yang membantu mempermudah dalam hal pengajuan beasiswa secara online oleh mahasiswa dan untuk membantu  dalam melakukan penjaringan penerima beasiswa untuk pihak universitas
